@@ -1,0 +1,2 @@
+# wynn
+Open minded
